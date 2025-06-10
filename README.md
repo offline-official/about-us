@@ -69,6 +69,6 @@ We're not just building an app - we're fostering communities. Our goal is to hel
 
 Have questions, suggestions, or just want to say hello? We'd love to hear from you!
 
-Email us at: [support@offline-social.com](mailto:support@offline-social.com)
+Email us at: [offlinehelp2025@gmail.com](mailto:support@offline-social.com)
 
 Join us in making the world a little more connected, one event at a time! 🎉
